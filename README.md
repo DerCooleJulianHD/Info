@@ -8,7 +8,7 @@ and such more cool Content.
 Visit me on : 
 
 Youtube: www.youtube.com/DerCooleJulianHDYT
-Instagram: www.instagram.com/dercoolejulianhd_yt
+Instagram: www.instagram.com/dercoolejulianhd.yt
 Discord: www.discord.com/dercoolejulianhd
 
 ---------------------------
@@ -23,7 +23,7 @@ und anderen coolen Kram!
 Besuche mich doch bei: 
 
 Youtube: www.youtube.com/DerCooleJulianHDYT
-Instagram: www.instagram.com/dercoolejulianhd_yt
+Instagram: www.instagram.com/dercoolejulianhd.yt
 Discord: www.discord.com/dercoolejulianhd
 
 ---------------------------
